@@ -10,6 +10,8 @@ Nichiren Daishonin's《On Establishing the Correct Teaching for the Peace of the
 
 > I have pondered the matter carefully with what limited resources I possess, and have looked a little at the scriptures for an answer. The people of today all turn their backs upon what is right; to a person, they give their allegiance to evil. This is the reason that the benevolent deities have abandoned the nation and departed together, that sages leave and do not return. And in their stead devils and demons come, and disasters and calamities occur. I cannot keep silent on this matter. I cannot suppress my fears.
 
+----------------------------------------------------------------------------------------------
+
 
 - [舅爷用铁锹将 3 岁孙女打进 ICU，只为“报仇”](https://mp.weixin.qq.com/s/_PKafmywjmaOGvJmPoiN0g)
 
